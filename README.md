@@ -1,5 +1,7 @@
 # What Cauchy Knew — And What I Did Not
-## On the ERI Corpus and the Information Architecture of Mathematical Reality
+## On the ERI Corpus and the Information Architecture of Mathematical Reality 
+
+## G. H. Hardy hypothetical review of my work.
 
 **G. H. HARDY**  
 *Fellow of the Royal Society · Sadleirian Professor of Pure Mathematics, Cambridge*  
